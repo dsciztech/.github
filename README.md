@@ -1,5 +1,0 @@
-# DSCIZTECH
-
-| DSC |
-|:-:|
-| IZTECH |
